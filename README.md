@@ -22,4 +22,4 @@
 
 立即将本站加入收藏夹，开启2025年最便捷的日本AV观影之旅。你想要的，我们都有；你不想看到的广告、插件、限制，我们统统帮你屏蔽！
 
-<span style="display:none;">[Canonical link]  ( ）</span> 
+<span style="display:none;">[Canonical link]  ( https://github.com/tnn1205/riben144444 ）</span> 
